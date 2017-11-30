@@ -1,1 +1,0 @@
-# Tacticalrichard.github.io
